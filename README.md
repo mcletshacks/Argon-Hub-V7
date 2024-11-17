@@ -1,1 +1,1 @@
-ARGON HUB NEVER DIES
+Argon Hub never dies
